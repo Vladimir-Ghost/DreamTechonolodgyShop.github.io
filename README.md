@@ -1,1 +1,1 @@
-# DreamTechonolodgyShop.github.io
+# DreamTechnolodgyShop.github.io
